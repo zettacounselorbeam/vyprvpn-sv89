@@ -1,4 +1,4 @@
-
+Enhance your VyprVPN experience with premium VyprVPN Client | cross-platform-support + static-IP, the #1 client. Includes cross-platform-support and static-IP for a safer and more
 
 
 
